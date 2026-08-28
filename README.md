@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GUVM940625HMCTDR06
+GUVM940625HMCTDR06
